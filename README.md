@@ -1,2 +1,4 @@
 **THE LIMINAL SPACE**
-wip
+---
+<br/> he/it ⋆ 21yo
+<br/> polyfragmented DID system
