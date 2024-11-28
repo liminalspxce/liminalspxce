@@ -1,4 +1,5 @@
 <br/> **LIMINAL**/**CANINE**
+<br/> <sub> this is kind of a wip </sub>
 <br/> ![divider](https://64.media.tumblr.com/3fcd893ecd30e48b94c2150b1aa5783f/e7f59d03556891d0-1e/s500x750/03b1db4dbfaa3d6531a276b01caa564ec0882f97.pnj)
 <br/> he/it (they/them ok) ⋆ **21**yo
 <br/> polyfragmented **DID** system
